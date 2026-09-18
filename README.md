@@ -1,2 +1,2 @@
 # Cash-Vault
-Track. Save. Grow Your Money
+Track. Save. and Grow Your Money
